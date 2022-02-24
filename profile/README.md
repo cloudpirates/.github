@@ -1,2 +1,2 @@
 # Cloud Pirates
-## collaborative co-working space
+## Collaborative co-working space / permanent community in Amsterdam
